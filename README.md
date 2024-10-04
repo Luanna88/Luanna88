@@ -1,6 +1,6 @@
 # 👋 Hi, I’m @Luanna88
 
-Desenvolvedora qualificada, esforçada e apaixonada por tecnologia. Possuo conhecimento básico em diversas linguagens de programação e áreas fundamentais do desenvolvimento de software. Motivada pela busca contínua de conhecimento, estou sempre à procura de aprimorar minhas habilidades e aprender novas tecnologias para aplicar em projetos inovadores.
+Desenvolvedora apaixonada por tecnologia. Possuo conhecimento básico em diversas linguagens de programação e áreas fundamentais do desenvolvimento de software. Motivada pela busca contínua de conhecimento, estou sempre à procura de aprimorar minhas habilidades e aprender novas tecnologias para aplicar em projetos inovadores.
 
 ## 👀 I’m interested in ...
 - Desenvolvimento de software
