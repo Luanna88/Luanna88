@@ -18,4 +18,4 @@ Email: luanna.souza@maisunifacisa.com.br Email 2: luanna.fernandesfs@gmail.com
 
 😄 Pronouns: ela/dela ⚡ Fun fact:
 
-Adoro explorar novas tecnologias e aplicar o que aprendo em projetos pessoais e acadêmicos! Experiências
+Adoro explorar novas tecnologias e aplicar o que aprendo em projetos pessoais e acadêmicos! 
